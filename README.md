@@ -1,3 +1,3 @@
 # Presentation
 
-![fullstack 1](https://user-images.githubusercontent.com/85719559/178316885-a69c28f3-4a8f-43e3-ad0f-acd21bac5fe4.png)
+![Copia de Full s](https://user-images.githubusercontent.com/85719559/178335486-b78878db-f0a1-4727-8891-775a9a739082.png)
